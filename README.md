@@ -2,7 +2,12 @@
 
 This artwork repository contains some of the painings I made. I am a musician, 
 educator and a programmer from Croatia inspired by meditation which deeply connects
-this work and my life. I like to describe these paintings an energy fields, in
+this work and my life. They were created during meditative states, and in post-
+meditative phase. I like to take time between each movement and observe my body
+energies during the work. There is no rushing just the pure intensity of each
+movement.
+
+I like to describe these paintings as energy fields, in
 which expressions do the subtle work of constantly shifting the image itself,
 making it a bit out of focus, which in turn induces a variety of feelings and images.
 Perspective may evolve over time and usually people that see these images observe 
